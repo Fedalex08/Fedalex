@@ -2,13 +2,13 @@
 
 Nice to meet you.
 
-I am ready to do your task.
+I am Fedorov in Guru. I am ready to do your task.
 
 I have prepared a document(e-Learning.pdf) with the details you requested.
 
 
 
-# Fedalex
+# CONTACT TO ME
 
 e-Mail   : zieglerher@gmail.com
 
@@ -17,6 +17,3 @@ Skype    : live:.cid.e9cf7938773ee58c
 Telegram : @GoldenPeaks
 
 Discod   : GoldenPeaks
-
-
-PLEASE CONTACT TO ME !!!
