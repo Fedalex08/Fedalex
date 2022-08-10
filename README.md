@@ -1,11 +1,4 @@
-# Hello, Mr Terry
-
-Nice to meet you.
-
-I am Fedorov in Guru. I am ready to do your task.
-
-I have prepared a document(E-Learning.pdf) with the details you requested.
-
+I have a question.
 
 
 # CONTACT TO ME
